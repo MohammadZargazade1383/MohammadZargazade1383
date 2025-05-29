@@ -1,5 +1,5 @@
-👋 سلام! من محمدرضا زرگرزاده هستم (@MohammadZargarzade1383)  
-👋 Hi, I'm Mohammadreza Zargarzade (@MohammadZargazade1383)
+👋 سلام! من محمدرضا زرگرزاده هستم (@MohammadZargarzadeh1383)  
+👋 Hi, I'm Mohammadreza Zargarzade (@MohammadZargarzadeh1383)
 
 ---
 

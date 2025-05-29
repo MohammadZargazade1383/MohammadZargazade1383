@@ -36,7 +36,7 @@
 ---
 
 ## 📫 راه‌های ارتباطی | How to reach me
-- 📧 ایمیل | Email: mohammadzargazade1383@gmail.com  
+- 📧 ایمیل | Email: m.reza13831339@gmail.com  
 - 💬 تلگرام | Telegram: [@Mohammadjiji13](https://t.me/@Mohammadjiji13)  
 
 
